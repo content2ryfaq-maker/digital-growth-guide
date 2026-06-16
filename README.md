@@ -1,5 +1,3 @@
-<meta name="google-site-verification" content="lwRx0gXyvYrFDuKZQ37HyL0O1EMKS0vsy15kMXj77rE" />
-<meta name="google-site-verification" content="lwRx0gXyvYrFDuKZQ37HyL0O1EMKS0vsy15kMXj77rE" />
 
 # فكرتك الرقمية: دليلك الشامل لاستراتيجيات النمو والتحول الرقمي 2026
 
